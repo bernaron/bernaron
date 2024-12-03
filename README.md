@@ -42,7 +42,7 @@
 
 ## **Contact** 📬  
 - 📧 **Email:** [bernard.onyiwe@gmail.com]  
-- 🌐 **LinkedIn:** [www.linkedin.com/in/bernard-onyiwe-041564318)  
+- 🌐 **LinkedIn:** https://www.linkedin.com/in/bernard-onyiwe-bernardonyiwe/
 
 **Let's connect and collaborate!** 🤝✨
 
